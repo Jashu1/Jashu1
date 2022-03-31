@@ -23,7 +23,7 @@
 
 -Mobile no.: 9848719133
 
--instagram:@__jashu._
+-instagram:@__jashu__
 
 -e-mail: gvsjaswanth@gmail.com
 
